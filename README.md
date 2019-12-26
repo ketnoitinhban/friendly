@@ -1,0 +1,2 @@
+# friendly
+thân thiện
